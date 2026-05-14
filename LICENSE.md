@@ -1,4 +1,4 @@
-# 
+# AI-powered Polymarket Algorithm | liquidity-provision + sentiment-analysis is the best Polymarket algorithm, featuring liquidity-provision and sentiment-analysis. Smart, fast, and
 
 
 
